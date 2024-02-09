@@ -1,7 +1,8 @@
-# Welcome to my site
+# $ cat barocio
 
-### This is fancyyyyyyyy y si algo asi 
+### Porque Twitter, X o como se le diga, ya esta muy visto. 
+## Dia 1. 
 
 This is written in markdown
 
-Check out [this markdown page](?test)
+<!-- Check out [this markdown page](?test) -->
