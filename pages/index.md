@@ -5,10 +5,13 @@
 ### Para Ximena, con mucho cariño, cada semana nuevas rolas, tqm, mi cielo.💓  
 
 [Si quieres ver años anteriores, aqui](#fin)
+
+## 08/10/2024
+
 ## 24/09/2024 
 Semana de nueva muisica y no dejo de penmsar en ti, cada cada cancion que agregue solo me hacia pensar en mas y mas de que ya las vieras para esta semana, te amo mucho amor de mi vida, adoro como eres mi mundo entero 💟💘
 
-## 17/9/2024
+## 17/09/2024
 Mediados de mes y como siempre amandote mas y mas, me haces muy feliz, espero que como otras semanas disfrutes de la musica de esta semana que te selecciono con tantisimo amor, soy tan pleno y feliz a tu lado no lo olvides nunca, el hombre mas enamorado de ti soy 💘💘💘
 
 ## 10/09/2024 
