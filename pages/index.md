@@ -6,6 +6,9 @@
 
 [Si quieres ver años anteriores, aqui](#fin)
 
+## 15/10/2024
+Y como todas las semanas esperando que esta semana te guste mas que las otras, de verdad no sabes cuanto te amo, mi mundo realmente se ha hecho mas feliz desde que te conozco y solo pasan los dias y pienso mas en ti, en voz en todo de ti, pienso en momentos increibles que vamos a compartir para otras semanas, disfruta de la musica de esta semana, amor de mi vida 💞
+
 ## 08/10/2024
 Esta semana van el doble de canciones, porque la semana fui un tonto y no agregue canciones, pero semana con doble de canciones, con doble de amor y solo pensando en volver a verte, espero que esta semana empiece con mucho mucho amor, y que todo este muy bien aunque ya sea martes, para mi el martes es el lunes porque empieza de la mejor forma y es compartiendote musica. Te amo para siempre bebe, nunca lo olvides, eres toda la adoracion de mi mundo 🤍
 
