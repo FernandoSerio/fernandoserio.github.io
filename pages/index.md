@@ -6,6 +6,9 @@
 
 [Si quieres ver años anteriores, aqui](#fin)
 
+## 22/10/2022
+Semana de cumplir 14 meses, quiero que esta semana mas padrisima que otras semanas porque si, nos la vamos a pasar conviviendo, todo el fin de semana, sabien que tengo la oportunidad de compartir otro mes, de compartir una semana mas de musica, de mi cariño, quiero que sepas que todo este amor que hemos construido no para de crecer hacia arriba y con buenas bases, disfruta de tu semana bebe, te amo con todo mi ser, eres mi completa adoracion 💞💞💞💞
+
 ## 15/10/2024
 Y como todas las semanas esperando que esta semana te guste mas que las otras, de verdad no sabes cuanto te amo, mi mundo realmente se ha hecho mas feliz desde que te conozco y solo pasan los dias y pienso mas en ti, en voz en todo de ti, pienso en momentos increibles que vamos a compartir para otras semanas, disfruta de la musica de esta semana, amor de mi vida 💞
 
