@@ -6,6 +6,12 @@
 
 [Si quieres ver años anteriores, aqui](#fin)
 
+## 05/10/2022
+Mi vidita y ya llegamos a nuestro segundo noviembre consecutivo estando juntos, esta semana es semana de eurojazz, y martes, primer martes de noviembre con nueva musica, te amo, y sabias que a partir de aqui solo quedan 49 dias para que se navidad, esta vez no me lo dijo chatgpt jajajaja te amo mi amor, eres mi mundo entero. 💕
+
+## 29/10/2022
+Y es realmente yo no me voy a ir aqui, quiero que sepas que te voy a acompañar y que te extiendo mi mano como pareja, como amigo y como tu me quieras ver, quiero que sepas que voy a estar aqui para hablar y apoyarte a entender siempre las cosas, porque te amo, porque en verdad mi vida a tu lado tiene otro sentido realmente es un sentido unico e inigualable. Te amo por siempre Ximena.
+
 ## 22/10/2022
 Semana de cumplir 14 meses, quiero que esta semana mas padrisima que otras semanas porque si, nos la vamos a pasar conviviendo, todo el fin de semana, sabien que tengo la oportunidad de compartir otro mes, de compartir una semana mas de musica, de mi cariño, quiero que sepas que todo este amor que hemos construido no para de crecer hacia arriba y con buenas bases, disfruta de tu semana bebe, te amo con todo mi ser, eres mi completa adoracion 💞💞💞💞
 
