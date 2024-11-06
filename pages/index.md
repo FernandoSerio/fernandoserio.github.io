@@ -6,7 +6,7 @@
 
 [Si quieres ver años anteriores, aqui](#fin)
 
-## 05/10/2022
+## 05/11/2022
 Mi vidita y ya llegamos a nuestro segundo noviembre consecutivo estando juntos, esta semana es semana de eurojazz, y martes, primer martes de noviembre con nueva musica, te amo, y sabias que a partir de aqui solo quedan 49 dias para que se navidad, esta vez no me lo dijo chatgpt jajajaja te amo mi amor, eres mi mundo entero. 💕
 
 ## 29/10/2022
