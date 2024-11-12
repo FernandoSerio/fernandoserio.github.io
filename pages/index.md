@@ -6,6 +6,9 @@
 
 [Si quieres ver años anteriores, aqui](#fin)
 
+## 12/11/2024
+Y aqui estoy una noche mas escribiendo versos llenos de amor, pensandonte y que esta semana no se me debe olvidar que tengo que subir los cambios porque si no quedo en ridiculo jajajaja. Si realmente el mundo gira es gracias a tu amor, me haces muy feliz, te pienso todo el tiempo y quiero que sepas en verdad que mundo lo haces tu, gracias por darme otra semana mas a tu lado. Te amo con todo mi ser mi vida hermosa 💖
+
 ## 05/11/2022
 Mi vidita y ya llegamos a nuestro segundo noviembre consecutivo estando juntos, esta semana es semana de eurojazz, y martes, primer martes de noviembre con nueva musica, te amo, y sabias que a partir de aqui solo quedan 49 dias para que se navidad, esta vez no me lo dijo chatgpt jajajaja te amo mi amor, eres mi mundo entero. 💕
 
