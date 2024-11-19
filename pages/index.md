@@ -6,6 +6,9 @@
 
 [Si quieres ver años anteriores, aqui](#fin)
 
+## 19/11/2024
+Semana de puente, mi vida hermosa, espero que esta semana no se te haga tan pesada, espero que te sientas descansadita, y que puedas disfrutar de la semana con estas canciones de la semana, te amo mucho 
+
 ## 12/11/2024
 Y aqui estoy una noche mas escribiendo versos llenos de amor, pensandonte y que esta semana no se me debe olvidar que tengo que subir los cambios porque si no quedo en ridiculo jajajaja. Si realmente el mundo gira es gracias a tu amor, me haces muy feliz, te pienso todo el tiempo y quiero que sepas en verdad que mundo lo haces tu, gracias por darme otra semana mas a tu lado. Te amo con todo mi ser mi vida hermosa 💖
 
