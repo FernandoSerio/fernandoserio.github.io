@@ -1,0 +1,30 @@
+<!DOCTYPE html>
+<html lang="es">
+<head>
+    <meta charset="UTF-8">
+    <meta name="viewport" content="width=device-width, initial-scale=1.0">
+    <title>Fecha Persistente</title>
+</head>
+<body>
+    <div id="datetime"></div>
+    <script>
+        document.addEventListener("DOMContentLoaded", function() {
+            let fechaGuardada = localStorage.getItem("fechaFija");
+            if (!fechaGuardada) {
+                // Si no hay una fecha guardada, generar una y guardarla
+                const options = { 
+                    year: 'numeric', 
+                    month: 'long', 
+                    day: 'numeric', 
+                    hour: '2-digit', 
+                    minute: '2-digit', 
+                    second: '2-digit' 
+                };
+                fechaGuardada = new Date().toLocaleString('es-MX', options);
+                localStorage.setItem("fechaFija", fechaGuardada);
+            }
+            document.getElementById("datetime").textContent = `La entrada fue realizada el ${fechaGuardada}.`;
+        });
+    </script>
+</body>
+</html>

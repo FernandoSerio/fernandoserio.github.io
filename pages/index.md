@@ -2,9 +2,13 @@
 
 <iframe style="border-radius:12px" src="https://open.spotify.com/embed/playlist/2n1A22UXTDLsRamBJGDFv6?utm_source=generator" width="100%" height="152" frameBorder="0" allowfullscreen="" allow="autoplay; clipboard-write; encrypted-media; fullscreen; picture-in-picture" loading="lazy"></iframe>
 
+
 ### Para Ximena, con mucho cariño, cada semana nuevas rolas, tqm, mi cielo.💓  
 
 [Si quieres ver años anteriores, aqui](#fin)
+
+## 26/11/2024
+Felices un año y tres meses mi amor, hoy verdaderamente si queria que esta entrada quedara grabada en punto de las 12 porque pues si, que padrisimo haya caido nuevamente en martes de musica y que padrisimo que hemos podido llegar hasta este dia, verdaderamente, que vueltas da la vida, nos hemos podido llenar de tantisimas sorpresas con esta realcion que a dia de hoy sigue llenando tantisimo mi corazon, te amo mucho muchisimo, muchas gracias por tantisimos momentos tan hermosos. Te amo con todo mi ser preciosisima. 
 
 ## 19/11/2024
 Semana de puente, mi vida hermosa, espero que esta semana no se te haga tan pesada, espero que te sientas descansadita, y que puedas disfrutar de la semana con estas canciones de la semana, te amo mucho 
