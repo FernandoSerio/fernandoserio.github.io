@@ -7,6 +7,9 @@
 
 [Si quieres ver años anteriores, aqui](#fin)
 
+## 03/12/24 
+Primer semana de diciembre,m que rapido pasa el tiempo mi vida hermosa, de verdad que este año ha sido un si fin de emociones y llegar hasta aca me asombra tantisimo por como ha volado el tiempo, disfruta mucho de tu semana y de la musica que te compilo con todo mi amor. 💘
+
 ## 26/11/2024
 Felices un año y tres meses mi amor, hoy verdaderamente si queria que esta entrada quedara grabada en punto de las 12 porque pues si, que padrisimo haya caido nuevamente en martes de musica y que padrisimo que hemos podido llegar hasta este dia, verdaderamente, que vueltas da la vida, nos hemos podido llenar de tantisimas sorpresas con esta realcion que a dia de hoy sigue llenando tantisimo mi corazon, te amo mucho muchisimo, muchas gracias por tantisimos momentos tan hermosos. Te amo con todo mi ser preciosisima. 
 
