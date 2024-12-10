@@ -7,6 +7,9 @@
 
 [Si quieres ver años anteriores, aqui](#fin)
 
+## 10/12/24
+Gracias por esta semana tan padrisima, tan llena de amor, tan llena de buenas cosas, mi amor hoy mas que nunca siento como crece y me hace pensarte y querer formar una vida a tu lado. Te amo hoy mas que nunca Ximena, no lo olvides, por un diciembre que siga estando lleno de amor de puras cosas buenas, te amooooo 💖
+
 ## 03/12/24 
 Primer semana de diciembre,m que rapido pasa el tiempo mi vida hermosa, de verdad que este año ha sido un si fin de emociones y llegar hasta aca me asombra tantisimo por como ha volado el tiempo, disfruta mucho de tu semana y de la musica que te compilo con todo mi amor. 💘
 
