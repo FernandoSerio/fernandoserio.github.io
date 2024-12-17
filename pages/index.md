@@ -7,6 +7,9 @@
 
 [Si quieres ver años anteriores, aqui](#fin)
 
+## 17/12/24
+Estamos a una semana de navidad mi amor, pero antes de que esa semana llegue quiero compartirte estas canciones de esta semana, te amo mucho mi vida hermosa, estamos a una semana de compartir nuestra segunda navidad. Me encata la idea de saber que cada dia que despierto se que estas en mi vida, que llegas a mi corazon de una forma o de otra, te amoooo. 😻
+
 ## 10/12/24
 Gracias por esta semana tan padrisima, tan llena de amor, tan llena de buenas cosas, mi amor hoy mas que nunca siento como crece y me hace pensarte y querer formar una vida a tu lado. Te amo hoy mas que nunca Ximena, no lo olvides, por un diciembre que siga estando lleno de amor de puras cosas buenas, te amooooo 💖
 
