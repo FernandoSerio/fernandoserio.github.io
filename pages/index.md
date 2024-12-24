@@ -7,7 +7,7 @@
 
 [Si quieres ver años anteriores, aqui](#fin)
 
-## 24//12/24
+## 24/12/24
 Te das cuenta de que tienes 24 años, es 24 de diciembre, noche buena y que este 24 es la penuntilma semana del año de musica, bebe realmente es muy emocionante saber de que estamos cerrando un año mas, que digo falta aun una semana para que se termine el año, pero que padrisimo de verdad, no sabes cuanto me emociona, esta semana quiero que sean canciones qu ete acompañen en tu semana navideña, espero puedas pasarla padrisimo, se que aun no es navidad, pero disfruta tu playlist de semana navideña, te amo con todo mi ser, amor de mi vida hermosa.
 
 ## 17/12/24
