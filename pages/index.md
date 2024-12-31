@@ -168,7 +168,9 @@ Primera semana del año mi amor, esdpero que mañana te vaya muy bien en tu nuev
 
 <a id="fin"></a>
 # Años anteriores
-Por aca esta [2023](?2023)
+Por aca esta :
+*[2023](?2023)
+
 
 <!-- Check out [this markdown page](?test) -->
-Hecho con muchisimo amor desde el fondo de mi corazon. [Fernando](https://www.instagram.com/barocio_fer/).
+Hecho con muchisimo amor desde el fondo de mi corazon. [Fernando](https://www.instagram.com/farocio_ber/).
