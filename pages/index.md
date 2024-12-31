@@ -7,6 +7,9 @@
 
 [Si quieres ver años anteriores, aqui](#fin)
 
+## 31/12/24
+Último día del año, mi amor. Todas estas semanas escribiéndote de forma ininterrumpida realmente han sido de las cosas más divertidas de este año, porque han pasado semanas de discusiones, semanas muy felices, pero siempre con la constancia de que sepas que estoy aquí y no planeo irme, de que sepas que siempre voy a estar aquí, y que podrán pasar tiempos difíciles o complejos, pero yo seguiré aquí. Se termina el año y todas estas notas pasarán a un apartado de este diario musical. ¿Qué nos deparará el 2025? Aún no lo sabemos, pero quiero que sepas que a pesar de todo aquí seguire, con más canciones. No te aseguro que sean las mejores, pero espero que te gusten como en otras semanas te han hechizado. Gracias por hacer todo tan posible este año. Por un 2025 lleno de cosas super buenas y hermosas para ambos, como personalmente y como pareja. Te amo para siempre, Ximena. Por siempre, siempre. 💖
+
 ## 24/12/24
 Te das cuenta de que tienes 24 años, es 24 de diciembre, noche buena y que este 24 es la penuntilma semana del año de musica, bebe realmente es muy emocionante saber de que estamos cerrando un año mas, que digo falta aun una semana para que se termine el año, pero que padrisimo de verdad, no sabes cuanto me emociona, esta semana quiero que sean canciones qu ete acompañen en tu semana navideña, espero puedas pasarla padrisimo, se que aun no es navidad, pero disfruta tu playlist de semana navideña, te amo con todo mi ser, amor de mi vida hermosa.
 
