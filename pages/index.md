@@ -15,7 +15,7 @@ Y porque sí, los videojuegos también llegan a ser un reflejo de lo que soy; su
 # Años anteriores
 Por aca esta :
 * [2023](?2023)
-* [2024](?2024)(Proximamente)
+* [2024](?2024)
 
 <!-- Check out [this markdown page](?test) -->
 Hecho con muchisimo amor desde el fondo de mi corazon. [Fernando](https://www.instagram.com/farocio_ber/).
