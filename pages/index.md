@@ -11,6 +11,9 @@
 Primera semana del año, mi amor. Esta semana tuve una idea, no sé si es fantástica o no, pero la verdad quería experimentar con algo nuevo. Alguna vez llegaste a decir: 'Esto no lo comparto porque puede ser raro'. Así me sentía antes de hacer la selección de canciones de esta semana, pero creo que esta semana refleja muy bien lo que en ocasiones también suelo escuchar.
 Y porque sí, los videojuegos también llegan a ser un reflejo de lo que soy; su música, también. Espero que te guste mucho esta semana, bebé. Como siempre, armando esta playlist con mucho amor. Ten un feliz inicio de año, de mes, de playlist.Te amo, te amo, te amo, Ximena hermosa de mi corazón 💟
 
+## 13/01/25
+Feliz martes de primera semana de especialista mi amor, que estas canciones te acompañen en tu camino y que te sirvan para llevar mas amena tu tarde, tu mañana o en el momento que la escuches, te amo mucho mi amor, espero que tu semana este de lo mejor, tu primera semana de la especialidad. Te amo mucho, por siempre para siempre. 🤍
+
 <a id="fin"></a>
 # Años anteriores
 Por aca esta :
