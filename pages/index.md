@@ -7,8 +7,11 @@
 
 [Si quieres ver años anteriores, aqui](#fin)
 
+## 28/01/25
+Que raro se paso enero, deverdad fue una cosa rarisima bebe, entre muy rapido y lento, pero siempre maravillado de estar a tu lado, de compartir sonrisas de todo lo que me cuentas y de poder llevarme conmigo el amor que me das. Gracias por tantisimo a lo largo de este enero que realmente valoro muchisimo, nuestro segundo enero juntos. Te dejo las canciones de esta semana, te amo por siempre bebé 💘
+
 ## 21/01/25
-MArtes con sabor a lunes mi amor hermosa, espero que esta semana que empezo de ir al hospi, te vaya muy bien, que se te pase muy rapida, y como siempre esperando que disfrutes la nueva musica que te comparto de esta semana, con mucho mucho amor desde el fondo de mi corazon seleccionando las mejores canciones para ti bebe. Te amo por siempre, siempre. 💓
+Martes con sabor a lunes mi amor hermosa, espero que esta semana que empezo de ir al hospi, te vaya muy bien, que se te pase muy rapida, y como siempre esperando que disfrutes la nueva musica que te comparto de esta semana, con mucho mucho amor desde el fondo de mi corazon seleccionando las mejores canciones para ti bebe. Te amo por siempre, siempre. 💓
 
 ## 14/01/25
 Feliz martes de primera semana de especialista mi amor, que estas canciones te acompañen en tu camino y que te sirvan para llevar mas amena tu tarde, tu mañana o en el momento que la escuches, te amo mucho mi amor, espero que tu semana este de lo mejor, tu primera semana de la especialidad. Te amo mucho, por siempre para siempre. 🤍
