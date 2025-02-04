@@ -7,6 +7,9 @@
 
 [Si quieres ver años anteriores, aqui](#fin)
 
+## 04/02/25
+Primera semana de febrero bebe, esta semana siento que encontre musica padrisima espero que te guste tanto como me gusto a mi. Y como los fines de semana que paso a tu lado, que convivimos tantisimo tiempo quiero que sepas y que deseo que esta semana te vaya excelentisimo, que ya se acomoden tus tiempos mejor y no olvides que te amo preciosa hermosa, todo mi amor como siempre te lo entrego. Ten una semana excelente te amo, te amo, te amo. ❤❤❤
+
 ## 28/01/25
 Que raro se paso enero, deverdad fue una cosa rarisima bebe, entre muy rapido y lento, pero siempre maravillado de estar a tu lado, de compartir sonrisas de todo lo que me cuentas y de poder llevarme conmigo el amor que me das. Gracias por tantisimo a lo largo de este enero que realmente valoro muchisimo, nuestro segundo enero juntos. Te dejo las canciones de esta semana, te amo por siempre bebé 💘
 
