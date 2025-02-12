@@ -7,6 +7,9 @@
 
 [Si quieres ver años anteriores, aqui](#fin)
 
+## 11/02/25
+Y como cada semana sin falta a pesar de las desveladas estoy aqui escribiendote y queriendo hacerte sonrerir un poco mas esta semana con la musica que te comparto, que por cierto bebé te diste cuenta que superamos las 800 canciones? Esta loquisimo la verdad. Espero tu sea mejor que la pasada y que como canciones se agregan yo quiero seguir agregando dias en mi vida contigo. Te amo mucho mi amor, por siempre, amor de mi vida 🤍🤍🤍🤍
+
 ## 04/02/25
 Primera semana de febrero bebe, esta semana siento que encontre musica padrisima espero que te guste tanto como me gusto a mi. Y como los fines de semana que paso a tu lado, que convivimos tantisimo tiempo quiero que sepas y que deseo que esta semana te vaya excelentisimo, que ya se acomoden tus tiempos mejor y no olvides que te amo preciosa hermosa, todo mi amor como siempre te lo entrego. Ten una semana excelente te amo, te amo, te amo. ❤❤❤
 
