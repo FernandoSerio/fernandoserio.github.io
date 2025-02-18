@@ -7,6 +7,9 @@
 
 [Si quieres ver años anteriores, aqui](#fin)
 
+## 18/02/25
+Que rapido pasa febrero mi amor, pensar que hace una semana estabamos casi casi empezandolo ahorita ya estamos a practicamente a 10 dias de acabarlo, pero mientras tanto quiero que esta semana puedas disfrutar de todo lo que agregado para ti esta semana, espero que te guste muchisimo. Igual quiero que sepas que pienso mucho en ti que cada dia que pasa no puedo dejar de sentir tantismo amor, que en verdad todos los dias hago un nuevo espacio para todo tu amor que me das. gracias por todo el tiempo a tu lado. Te amo mucho Ximena, ten una excelente semana. ♥🤍❤💘
+
 ## 11/02/25
 Y como cada semana sin falta a pesar de las desveladas estoy aqui escribiendote y queriendo hacerte sonrerir un poco mas esta semana con la musica que te comparto, que por cierto bebé te diste cuenta que superamos las 800 canciones? Esta loquisimo la verdad. Espero tu sea mejor que la pasada y que como canciones se agregan yo quiero seguir agregando dias en mi vida contigo. Te amo mucho mi amor, por siempre, amor de mi vida 🤍🤍🤍🤍
 
