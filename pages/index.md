@@ -7,6 +7,11 @@
 
 [Si quieres ver años anteriores, aqui](#fin)
 
+## 25/02/25
+Y es que yo sé que si nuestro mundo se detiene, el mundo de todos no se va a parar a preguntar qué nos pasó, pero yo no quiero aún detenerlo. Voy a seguir aquí de necio, luchando por todo lo nuestro, que yo sé que cualquier momento contigo es un rayo de esperanza, realmente así lo siento.
+Sé que ambos estamos pasando por momentos difíciles, pero cada instante contigo me da esperanza. Quiero seguir creciendo a tu lado y mejorar, porque estar contigo me hace sentir que todo está bien.
+Y como te lo dije hoy, no sé cómo lo voy a hacer, pero yo voy a cambiar. Sé que lo voy a hacer. Te amo con toda mi intensidad, Ximena ❤
+
 ## 18/02/25
 Que rapido pasa febrero mi amor, pensar que hace una semana estabamos casi casi empezandolo ahorita ya estamos a practicamente a 10 dias de acabarlo, pero mientras tanto quiero que esta semana puedas disfrutar de todo lo que agregado para ti esta semana, espero que te guste muchisimo. Igual quiero que sepas que pienso mucho en ti que cada dia que pasa no puedo dejar de sentir tantismo amor, que en verdad todos los dias hago un nuevo espacio para todo tu amor que me das. gracias por todo el tiempo a tu lado. Te amo mucho Ximena, ten una excelente semana. ♥🤍❤💘
 
