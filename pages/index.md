@@ -7,6 +7,9 @@
 
 [Si quieres ver años anteriores, aqui](#fin)
 
+## 04/03/25
+Ya es marzo bebeee, y como siempre quiero que esta semana y este mes lo empieces de la mejor manera posible, que como cada mañana de martes que es la mas dificil a mi parecer de la semana, se te pase volando y que sientas que hay algo por lo que puedas levantarte a darlo todo, que puedas ir en el camino y disfrutar de nueva musica, te amo con todo mi ser hermosa, realmente no me cabe la menor duda de que eres mi todo, te amooooo 🤍🤍💘💘
+
 ## 25/02/25
 Y es que yo sé que si nuestro mundo se detiene, el mundo de todos no se va a parar a preguntar qué nos pasó, pero yo no quiero aún detenerlo. Voy a seguir aquí de necio, luchando por todo lo nuestro, que yo sé que cualquier momento contigo es un rayo de esperanza, realmente así lo siento.
 Sé que ambos estamos pasando por momentos difíciles, pero cada instante contigo me da esperanza. Quiero seguir creciendo a tu lado y mejorar, porque estar contigo me hace sentir que todo está bien.
