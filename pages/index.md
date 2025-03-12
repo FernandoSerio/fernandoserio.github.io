@@ -7,6 +7,9 @@
 
 [Si quieres ver años anteriores, aqui](#fin)
 
+## 11/03/25
+Martes de quedarme mimido y hacerla despues de la chamba la playlist, bebe aunque durante esta mañana no te haya acompañado, quiero que tenga igual de buen valor que te acompañe para tu semana, espero que las canciones de esta semana te acompañen a donde sea que vayas, que ya me estoy haciendo labor de buscar la forma para que las tengas en YT Music bebe. Te amo mucho y disfruta de esta semana bebé en todos los aspectos. 🤍🤍🤍🤍
+
 ## 04/03/25
 Ya es marzo bebeee, y como siempre quiero que esta semana y este mes lo empieces de la mejor manera posible, que como cada mañana de martes que es la mas dificil a mi parecer de la semana, se te pase volando y que sientas que hay algo por lo que puedas levantarte a darlo todo, que puedas ir en el camino y disfrutar de nueva musica, te amo con todo mi ser hermosa, realmente no me cabe la menor duda de que eres mi todo, te amooooo 🤍🤍💘💘
 
