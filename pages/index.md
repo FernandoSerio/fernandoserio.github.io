@@ -7,6 +7,9 @@
 
 [Si quieres ver años anteriores, aqui](#fin)
 
+## 18/03/25
+Madrugada de martes y de semana cortita, bebé, como siempre quiero que disfrutes de la musica que te comparto como siempre. Y como siempre espero que esta semana tan importante para ti empiece al maximo, se que es una semana con muchas cosas nuevas, pero que no quede de lado la musica que te acompañe para poder hacer mas ameno tus momentos del dia. Te amo mucho mi amor, mi amiga, mi novia la especialista mejor preparada de este mundo. Te amo Ximena con todo mi ser. Eres la mejor del mundo 💖
+
 ## 11/03/25
 Martes de quedarme mimido y hacerla despues de la chamba la playlist, bebe aunque durante esta mañana no te haya acompañado, quiero que tenga igual de buen valor que te acompañe para tu semana, espero que las canciones de esta semana te acompañen a donde sea que vayas, que ya me estoy haciendo labor de buscar la forma para que las tengas en YT Music bebe. Te amo mucho y disfruta de esta semana bebé en todos los aspectos. 🤍🤍🤍🤍
 
