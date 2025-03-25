@@ -7,6 +7,9 @@
 
 [Si quieres ver años anteriores, aqui](#fin)
 
+## 25/03/25
+Estamos a un dia de semana de nuestro aniversario y no hay cosa que mas me emocione que eso, realmente que rapido pasa el tiempo mi amor, este fin de semana que paso fue increible poderlo pasar a tu lado, platicando, riendo, estando juntos, poder pasar las noches juntos, realmente es algo que me hace mucha ilusion, que el tiempo pasa y nuestros espacios se comparten mas y mas, no sabes que tan enamorado estoy de ti mi Ximena hermosa, realmente la vida a tu lado es increible. Haces que este corazon te quiera mas y mas. Te amo con todo mi ser 🥰🤍
+
 ## 18/03/25
 Madrugada de martes y de semana cortita, bebé, como siempre quiero que disfrutes de la musica que te comparto como siempre. Y como siempre espero que esta semana tan importante para ti empiece al maximo, se que es una semana con muchas cosas nuevas, pero que no quede de lado la musica que te acompañe para poder hacer mas ameno tus momentos del dia. Te amo mucho mi amor, mi amiga, mi novia la especialista mejor preparada de este mundo. Te amo Ximena con todo mi ser. Eres la mejor del mundo 💖
 
