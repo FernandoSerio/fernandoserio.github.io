@@ -7,6 +7,9 @@
 
 [Si quieres ver años anteriores, aqui](#fin)
 
+## 01/04/25
+Quien diria que la semana pasada fue la ultima playlist del mes, realmente coincidencias muy curiosas, ealmente este mes, nos espera un con un buen de salidas y planes, porque si bebe, estar a tu lado haciendo de todo realmente me hace muy feliz, mucho mucho feliz, despues de todo lo que hemos recorrido solo me puedo dar cuenta de cuanto llenas de amor cada rincon de mi ser. Disfruta mucho de la musica de esta semana, semana de preceremonia. Cada dia, mes, año amandote mas y mas. Por siempre mi amor. 💘💘
+
 ## 25/03/25
 Estamos a un dia de semana de nuestro aniversario y no hay cosa que mas me emocione que eso, realmente que rapido pasa el tiempo mi amor, este fin de semana que paso fue increible poderlo pasar a tu lado, platicando, riendo, estando juntos, poder pasar las noches juntos, realmente es algo que me hace mucha ilusion, que el tiempo pasa y nuestros espacios se comparten mas y mas, no sabes que tan enamorado estoy de ti mi Ximena hermosa, realmente la vida a tu lado es increible. Haces que este corazon te quiera mas y mas. Te amo con todo mi ser 🥰🤍
 
