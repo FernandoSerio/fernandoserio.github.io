@@ -7,6 +7,10 @@
 
 [Si quieres ver años anteriores, aqui](#fin)
 
+## 07/04/25
+Siete dias despues aqui sigo, queriendo darte todo mi amor como cada semana que te veo, solo siento que nuestra conexion se vuelve mas fuerte, que mi amor nuevamente vuelve a desbordar por ti, que solo te pienso y me quiero volver loco de amor, realmente haces mis dias que brillen mas que otros, yo como cada semana te dejare la playlist de esta semana, espero que la puedas drisfrutarm mucho mi amor. No olvides que eres mi mundo entero. Te amooooo amor de mi vida 🤍
+
+
 ## 01/04/25
 Quien diria que la semana pasada fue la ultima playlist del mes, realmente coincidencias muy curiosas, ealmente este mes, nos espera un con un buen de salidas y planes, porque si bebe, estar a tu lado haciendo de todo realmente me hace muy feliz, mucho mucho feliz, despues de todo lo que hemos recorrido solo me puedo dar cuenta de cuanto llenas de amor cada rincon de mi ser. Disfruta mucho de la musica de esta semana, semana de preceremonia. Cada dia, mes, año amandote mas y mas. Por siempre mi amor. 💘💘
 
