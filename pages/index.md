@@ -6,10 +6,11 @@
 ### Para Ximena, con mucho cariño, cada semana nuevas rolas, tqm, mi cielo.💓  
 
 [Si quieres ver años anteriores, aqui](#fin)
+## 15/04/25
+Quien diria que esta semana caeria en quincena verdad jajajaja, nocierto, ya estamos a mediados de abril y aunque el ceremonia no se haya completado me queda el recuerdo de haber compartido ese fin de semana pasando el dia la noche juntos, como este fun de semana que paso, que nos la pasamos compartiendo la tarde, un sillon, una mesa, todo un espacio juntos porque si, te siento mas cerca que nunca y nunca me habia sentido de la forma en que me he sentido a lo largo de todo este tiempo que llevamos juntos, realmente que cada que paso a tu lado solo siento que te puedo amar mas y mas sin parar, disfruta much de la musica de esta semana mi amor, disfruta de tus vacaciones, disfruta de todo lo bueno, preciosa hermosa. Te amo con todo mi ser 💘
 
 ## 07/04/25
-Siete dias despues aqui sigo, queriendo darte todo mi amor como cada semana que te veo, solo siento que nuestra conexion se vuelve mas fuerte, que mi amor nuevamente vuelve a desbordar por ti, que solo te pienso y me quiero volver loco de amor, realmente haces mis dias que brillen mas que otros, yo como cada semana te dejare la playlist de esta semana, espero que la puedas drisfrutarm mucho mi amor. No olvides que eres mi mundo entero. Te amooooo amor de mi vida 🤍
-
+Siete dias despues aqui sigo, queriendo darte todo mi amor como cada semana que te veo, solo siento que nuestra conexion se vuelve mas fuerte, que mi amor nuevamente vuelve a desbordar por ti, que solo te pienso y me quiero volver loco de amor, realmente haces mis dias que brillen mas que otros, yo como cada semana te dejare la playlist de esta semana, espero que la puedas drisfrutar mucho mi amor. No olvides que eres mi mundo entero. Te amooooo amor de mi vida 🤍
 
 ## 01/04/25
 Quien diria que la semana pasada fue la ultima playlist del mes, realmente coincidencias muy curiosas, ealmente este mes, nos espera un con un buen de salidas y planes, porque si bebe, estar a tu lado haciendo de todo realmente me hace muy feliz, mucho mucho feliz, despues de todo lo que hemos recorrido solo me puedo dar cuenta de cuanto llenas de amor cada rincon de mi ser. Disfruta mucho de la musica de esta semana, semana de preceremonia. Cada dia, mes, año amandote mas y mas. Por siempre mi amor. 💘💘
