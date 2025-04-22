@@ -6,6 +6,10 @@
 ### Para Ximena, con mucho cariño, cada semana nuevas rolas, tqm, mi cielo.💓  
 
 [Si quieres ver años anteriores, aqui](#fin)
+
+## 22/04/25
+Martes de calor demencial mi amor y de andar corriendo, verdaderamente ha sido un dia de puro correr, pero en este ratito quiero hacerlo especial para que te puedas sentir mi amor, a la distancia y con la musica que te elegi para esta semana, espero que esta semana no este siendo tan dificil mi amor, sabes que no dejo de pensarte todo el tiempo, que te amo con todo mi ser, eres mi mundo entero y mi adoracion mas grande. Te amo mucho mi vida, disfruta muchisimo la seleccion musical de esta semana 🤍
+
 ## 15/04/25
 Quien diria que esta semana caeria en quincena verdad jajajaja, nocierto, ya estamos a mediados de abril y aunque el ceremonia no se haya completado me queda el recuerdo de haber compartido ese fin de semana pasando el dia la noche juntos, como este fun de semana que paso, que nos la pasamos compartiendo la tarde, un sillon, una mesa, todo un espacio juntos porque si, te siento mas cerca que nunca y nunca me habia sentido de la forma en que me he sentido a lo largo de todo este tiempo que llevamos juntos, realmente que cada que paso a tu lado solo siento que te puedo amar mas y mas sin parar, disfruta much de la musica de esta semana mi amor, disfruta de tus vacaciones, disfruta de todo lo bueno, preciosa hermosa. Te amo con todo mi ser 💘
 
