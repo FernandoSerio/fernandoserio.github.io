@@ -7,6 +7,9 @@
 
 [Si quieres ver años anteriores, aqui](#fin)
 
+## 29/04/25
+Ultimo dia de playlist de abril, y con muchas emociones respecto a este cierre del mes a tu lado, no es nada malo pero quiero que sepas que me siento muy comprometido y como con otras cosas quiero que sepas que otra semana mas a tu lado es una semana mas de musica, quiero que esto de una forma demuestre tambien la constancia de todo lo que quiero hacer por ti y mas para poder permitirme estar muchos años mas contigo, te amo mucho Ximena, quiero que no quede duda alguna de todo lo que siento por ti es lo bueno de verdad, disfruta de la semana y de la musica que te seleccione esta semana. 
+
 ## 22/04/25
 Martes de calor demencial mi amor y de andar corriendo, verdaderamente ha sido un dia de puro correr, pero en este ratito quiero hacerlo especial para que te puedas sentir mi amor, a la distancia y con la musica que te elegi para esta semana, espero que esta semana no este siendo tan dificil mi amor, sabes que no dejo de pensarte todo el tiempo, que te amo con todo mi ser, eres mi mundo entero y mi adoracion mas grande. Te amo mucho mi vida, disfruta muchisimo la seleccion musical de esta semana 🤍
 
