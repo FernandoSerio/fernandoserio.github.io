@@ -7,6 +7,9 @@
 
 [Si quieres ver años anteriores, aqui](#fin)
 
+## 06/05/25
+Primera semana de mayo bebé, esperando que tu semana no sea tan pesada por haberla empezado con martes y no lunes, yo espero que de verdad se te pase volando, se que no va a ser una semana donde las cosas empiezan bien del todo, pero aun asi quiero que sepas que estoy aqui para apoyarte en todo lo que necesites, no olvides que te amo, te pienso y me preocupas muchisimo, sabes que lo que tu me pidas ahi estare para hacerlo. Te amo mucho y disfruta mucho de la musica de esta semana. 💓
+
 ## 29/04/25
 Ultimo dia de playlist de abril, y con muchas emociones respecto a este cierre del mes a tu lado, no es nada malo pero quiero que sepas que me siento muy comprometido y como con otras cosas quiero que sepas que otra semana mas a tu lado es una semana mas de musica, quiero que esto de una forma demuestre tambien la constancia de todo lo que quiero hacer por ti y mas para poder permitirme estar muchos años mas contigo, te amo mucho Ximena, quiero que no quede duda alguna de todo lo que siento por ti es lo bueno de verdad, disfruta de la semana y de la musica que te seleccione esta semana. 
 
