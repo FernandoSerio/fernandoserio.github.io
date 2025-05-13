@@ -7,6 +7,9 @@
 
 [Si quieres ver años anteriores, aqui](#fin)
 
+## 13/05/25
+Que extraño y prolongado se esta haciendo mayo, realmente han sido dias muy rapidos pero semanas muy lentas, sin embargo y sin importar lo que pase, te comparto la semana de nuevos exitos en mi seleccion musical, mi amor. Te das cuenta de que estamos practicamente a un mes de tu cumpleaños? Realmente que emcionante, no te das una idea de que tan loco emocionado me pone eso bebe jajaja, te amo mucho muchisimo y como siempre disfruta de tu semana de musica mi amor 💝🤍
+
 ## 06/05/25
 Primera semana de mayo bebé, esperando que tu semana no sea tan pesada por haberla empezado con martes y no lunes, yo espero que de verdad se te pase volando, se que no va a ser una semana donde las cosas empiezan bien del todo, pero aun asi quiero que sepas que estoy aqui para apoyarte en todo lo que necesites, no olvides que te amo, te pienso y me preocupas muchisimo, sabes que lo que tu me pidas ahi estare para hacerlo. Te amo mucho y disfruta mucho de la musica de esta semana. 💓
 
