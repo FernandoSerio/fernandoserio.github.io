@@ -7,6 +7,9 @@
 
 [Si quieres ver años anteriores, aqui](#fin)
 
+## 20/05/25
+Y como todas las semanas aqui estoy escribiendote pero hoy si me pase de tonto no escribiendote desde la media noche porque mi demencia de sueño no me dejo, ni la demencia de la chamba, en fin mi amor, espero que este martes de rodillas lastimadas no haya impedido que fuera un dia en donde todo estuviera bien, disfruta de tu semana con la musica de esta semana, te amo muucho mucho muchisimo 💖🥰🥰
+
 ## 13/05/25
 Que extraño y prolongado se esta haciendo mayo, realmente han sido dias muy rapidos pero semanas muy lentas, sin embargo y sin importar lo que pase, te comparto la semana de nuevos exitos en mi seleccion musical, mi amor. Te das cuenta de que estamos practicamente a un mes de tu cumpleaños? Realmente que emcionante, no te das una idea de que tan loco emocionado me pone eso bebe jajaja, te amo mucho muchisimo y como siempre disfruta de tu semana de musica mi amor 💝🤍
 
