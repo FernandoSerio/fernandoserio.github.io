@@ -7,6 +7,9 @@
 
 [Si quieres ver años anteriores, aqui](#fin)
 
+## 27/05/25
+Que raro es escribirte despues de un aniversario, sabes, casi siempre es de que un dia antes o el mero dia pero nunca un dia despues, no es que sea nada malo verdad, pero me parece curiosos siento como si lo experimentara por primera vez jajaja, no se realmente curioso, en fin mi amor, me despido de ti en esta nota breve de la musica para tu semana esperando que puedas disfrutar la nueva musica que seleccione para ti mi amor, que todo mi amor llegue como siempre por todos los canales posibles, alma, pensamiento, musica, cartas, letras, todas las formas posibles, te amo por siempre Ximena, gracias por todo este tiempo siendo tan increible, te amo amo amo amoooooo ♥♥♥♥
+
 ## 20/05/25
 Y como todas las semanas aqui estoy escribiendote pero hoy si me pase de tonto no escribiendote desde la media noche porque mi demencia de sueño no me dejo, ni la demencia de la chamba, en fin mi amor, espero que este martes de rodillas lastimadas no haya impedido que fuera un dia en donde todo estuviera bien, disfruta de tu semana con la musica de esta semana, te amo muucho mucho muchisimo 💖🥰🥰
 
