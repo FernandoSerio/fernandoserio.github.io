@@ -7,8 +7,11 @@
 
 [Si quieres ver años anteriores, aqui](#fin)
 
+## 10/06/25
+Dia dos de tu cumpleaños y que mejor que empezar este dia con musica especialemente seleccionada para ti. Que sepas que esta semana hice una seleccion mas especial que nunca. puede ser que se siente asi tal vez porque lo hago con muchisimo mas por tu cumpleaños, porque quiero hacerte llenar de mas sonrisas, de buenos sentimientos, como siempre quiero desearte un excelente martes mi amor, que ya estamos a dos dias de que el gran dia del año llegue, que estamos a dos dias de tener la dicha de compartir tu cumpleaños, en verdad que dicha tan unica y especial siento por eso, te amo mucho amor de mi vida, disfruta de las canciones de esta semana. 💗💗💗
+
 ## 03/06/25
-Primera semana de junio, ultima se clases, bebe y como siempre que deseo que te vaya muy bien en tu semana, que esta semana de musica te ayude a lograr terminar tu semana ya estas a nada de termianr el semenestre y que mejor que sentirnos muy orgullosos de todo lo que hiciste a lo largo de este semestre. Realmente amo mucho y enorgulleces. Disfruta mucho de la musica del amor, amor de mi vida 🤍🤍💖💖🥰
+Primera semana de junio, ultima se clases, bebe y como siempre que deseo que te vaya muy bien en tu semana, que esta semana de musica te ayude a lograr terminar tu semana ya estas a nada de terminar el semestre y que mejor que sentirnos muy orgullosos de todo lo que hiciste a lo largo de este semestre. Realmente amo mucho y enorgulleces. Disfruta mucho de la musica del amor, amor de mi vida 🤍🤍💖💖🥰
 
 ## 27/05/25
 Que raro es escribirte despues de un aniversario, sabes, casi siempre es de que un dia antes o el mero dia pero nunca un dia despues, no es que sea nada malo verdad, pero me parece curiosos siento como si lo experimentara por primera vez jajaja, no se realmente curioso, en fin mi amor, me despido de ti en esta nota breve de la musica para tu semana esperando que puedas disfrutar la nueva musica que seleccione para ti mi amor, que todo mi amor llegue como siempre por todos los canales posibles, alma, pensamiento, musica, cartas, letras, todas las formas posibles, te amo por siempre Ximena, gracias por todo este tiempo siendo tan increible, te amo amo amo amoooooo ♥♥♥♥
