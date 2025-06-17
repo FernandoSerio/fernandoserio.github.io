@@ -7,6 +7,9 @@
 
 [Si quieres ver años anteriores, aqui](#fin)
 
+## 17/06/25
+Otra semana mas a tu lado luchando por conquistarte con nueva musica, con nuevas emociones que llegan a mi ser cuando pienso en ti, como la musica, te escucho y me recuerda a ti, que esta semana siga floreciendo nuestro amor nuestro cariño, nuestro respeto, madurez en la relacion. Disfruta de la semana mi amor, que la musica nueva te acompañe con esta semana lluviosa, que sepas que te extraño muchisimo y te pienso todo el tiempo. Te amo por siempre amor de mi vida ❤💘❤💘❤
+
 ## 10/06/25
 Dia dos de tu cumpleaños y que mejor que empezar este dia con musica especialemente seleccionada para ti. Que sepas que esta semana hice una seleccion mas especial que nunca. puede ser que se siente asi tal vez porque lo hago con muchisimo mas por tu cumpleaños, porque quiero hacerte llenar de mas sonrisas, de buenos sentimientos, como siempre quiero desearte un excelente martes mi amor, que ya estamos a dos dias de que el gran dia del año llegue, que estamos a dos dias de tener la dicha de compartir tu cumpleaños, en verdad que dicha tan unica y especial siento por eso, te amo mucho amor de mi vida, disfruta de las canciones de esta semana. 💗💗💗
 
