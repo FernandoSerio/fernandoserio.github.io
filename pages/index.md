@@ -7,11 +7,13 @@
 
 [Si quieres ver años anteriores, aqui](#fin)
 
+## 01/07/25
+Primera semana de julio mi amor, cerramos tu mes de una forma unica escuchando mas de 2000 canciones, pero que este mes al igual que pasado este excelentisimo para ti, para mi, para ambos, espero que la musica de esta semana te parezca padrisima, y que la disfrutes como otras semanas, que esta semana de julio este padrisima porque tambien ya son vacaciones jajaja, como cada semana quiero que sepas que amo mas y mas bebé. 🤍💝🤍💝
+
 ## 24/06/25
 Y el dia llego llegamos a mas de mil canciones, como pasa el tiempo, que volteamos a ver hacia atras y que hace dos años empezaba a nacer una relacion que no sabiamos que llegaria a dia de hoy, estoy muy feliz por compartir mas de 1000 canciones, semana tras semana, escuchando y pensando si esta cancion te gustara, si esta transcision no suena tan extraña, si esa ya la conocias. Un sin fin de reacciones cuando llego a esta playlist, pero siempre me llegan al corazon y me hacen sentir tan afortunado de saber que le puedo dedicar canciones cada semana. Gracias por seguir aqui despues de mas de 1000 canciones. Te amo tantisimo Ximena, eres mi alma gemela. 🤍
 
 ![Alt text](https://lh3.googleusercontent.com/pw/AP1GczP1YV-pok2Qv61knsTTwgsAdmuxpRY4I94rFGL0hTrFBI-6_axS-Si79zhXNgTp46EHZA9ZXSZht8TeHE3Gf-wTy-s8LJD8XLt5_YU2pUZFS78uhQzykquussws8Qhr86PR6nGaMREtCpDWfpNS7JDJAQ=w953-h953-s-no-gm "Te amo por siempre 💖")
-
 
 ## 17/06/25
 Otra semana mas a tu lado luchando por conquistarte con nueva musica, con nuevas emociones que llegan a mi ser cuando pienso en ti, como la musica, te escucho y me recuerda a ti, que esta semana siga floreciendo nuestro amor nuestro cariño, nuestro respeto, madurez en la relacion. Disfruta de la semana mi amor, que la musica nueva te acompañe con esta semana lluviosa, que sepas que te extraño muchisimo y te pienso todo el tiempo. Te amo por siempre amor de mi vida ❤💘❤💘❤
