@@ -7,6 +7,11 @@
 
 [Si quieres ver años anteriores, aqui](#fin)
 
+## 08/07/25
+Y es que aunque estas semanas pasen yo no puedo dejar de seguir aferrandome a buscar la forma de conectar contigo y luchando por lo que siento por ti, no me rendire tan facilmente, todavia puedo cambiar mas y te lo voy a seguir demostrando, no quiero pasar a ser un mounstro, una tortuta, o lo que te cause mas problemas. Y que sepas que voy a seguir, aqui, en este lugar, en tu vida, y en donde quieras que vayas mientras tu me quieras seguir regalando esos momentos, disfruta de la musica de la semana, te amo mucho Ximena 💚
+
+![Alt text](https://lh3.googleusercontent.com/pw/AP1GczOlFpg4irIfZI7W939ZMHxVu9O52suywL6KJxOSvH07fW4elrT6DdxHt7dVj5OZMLsu7XCibtB2hX4j2139ZIMuH5IKWC5Bg9cqkHMAsZh3cPaG1PIa9yxiiVYLarVuUEMekFoDJfoeyHA2HZz3TmnUlQ=w1271-h953-s-no-gm?authuser=0 " 💚")
+
 ## 01/07/25
 Primera semana de julio mi amor, cerramos tu mes de una forma unica escuchando mas de 2000 canciones, pero que este mes al igual que pasado este excelentisimo para ti, para mi, para ambos, espero que la musica de esta semana te parezca padrisima, y que la disfrutes como otras semanas, que esta semana de julio este padrisima porque tambien ya son vacaciones jajaja, como cada semana quiero que sepas que amo mas y mas bebé. 🤍💝🤍💝
 
