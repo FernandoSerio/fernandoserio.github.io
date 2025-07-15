@@ -7,6 +7,9 @@
 
 [Si quieres ver años anteriores, aqui](#fin)
 
+## 15/07/25
+Y como cada semana mi amor, esperando que estes disfrutando de las vacaciones, de tu semana, de tu dia. Que esta semana disfrutes como otras la playlist que siempre con mucho cariño te hago, son dias bien lluviosos pero muy divertidos a tu lado y que mejor que compartir los dias con lluvia a tu lado, platicando, riendonos y diciendo cuanta cosa se nos ocurra como siempre. Te amo por siempre Ximena, no lo olvides, eres mi luz, mi alegria y mi corazon entero, gracias por tantisimo amor semana tras semana, te adoro, te amo, me encantas, eres increible. 💝💝💝
+
 ## 08/07/25
 Y es que aunque estas semanas pasen yo no puedo dejar de seguir aferrandome a buscar la forma de conectar contigo y luchando por lo que siento por ti, no me rendire tan facilmente, todavia puedo cambiar mas y te lo voy a seguir demostrando, no quiero pasar a ser un mounstro, una tortuta, o lo que te cause mas problemas. Y que sepas que voy a seguir, aqui, en este lugar, en tu vida, y en donde quieras que vayas mientras tu me quieras seguir regalando esos momentos, disfruta de la musica de la semana, te amo mucho Ximena 💚
 
