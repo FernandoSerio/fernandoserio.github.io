@@ -7,6 +7,9 @@
 
 [Si quieres ver años anteriores, aqui](#fin)
 
+## 22/07/25
+Esperando que empieces de la mejor manera esta ultima semana de vacaciones bebé y que mejor que compartiendote la seleccion musical de esta semana, que tuvo un giro musical un poco mas diferente, que no todo sea siempre electronica jajaja, en fin, disfruta mucho de esta semana mi vida, que todo vaya mejor que nunca, que esta semana se acaben las lluvias para que tu regreso no sea tan caotico, organiza, descansa y disfruta mucho de estos dias para que puedas regresar mas recargada que nunca, tambien como recordatorio, esta es semana de aniversario mi vida, te amo por siempre Ximena, no lo olvides 🤍
+
 ## 15/07/25
 Y como cada semana mi amor, esperando que estes disfrutando de las vacaciones, de tu semana, de tu dia. Que esta semana disfrutes como otras la playlist que siempre con mucho cariño te hago, son dias bien lluviosos pero muy divertidos a tu lado y que mejor que compartir los dias con lluvia a tu lado, platicando, riendonos y diciendo cuanta cosa se nos ocurra como siempre. Te amo por siempre Ximena, no lo olvides, eres mi luz, mi alegria y mi corazon entero, gracias por tantisimo amor semana tras semana, te adoro, te amo, me encantas, eres increible. 💝💝💝
 
