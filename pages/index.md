@@ -6,6 +6,8 @@
 ### Para Ximena, con mucho cariño, cada semana nuevas rolas, tqm, mi cielo.💓  
 
 [Si quieres ver años anteriores, aqui](#fin)
+## 29/07/25
+Ultima semana de Julio y primera semana de clases mi amorcititito, espero que esta semana a pesar de que sea una semana donde terminaste empapada, sea un buen augurio de que todo ira bien, aun no acaba este mes pero practicamente esta a la vuelta de la esquina, espero que te vaya muy bien esta semana mi amor, que disfrutes de la musica que te elegi para ti como siempre con muchisimo amor y que te pueda acompañar aunque sea un ratito en tu camino o por las tardes. Te amo mucho mi corazon, eres todo para mi 💘
 
 ## 22/07/25
 Esperando que empieces de la mejor manera esta ultima semana de vacaciones bebé y que mejor que compartiendote la seleccion musical de esta semana, que tuvo un giro musical un poco mas diferente, que no todo sea siempre electronica jajaja, en fin, disfruta mucho de esta semana mi vida, que todo vaya mejor que nunca, que esta semana se acaben las lluvias para que tu regreso no sea tan caotico, organiza, descansa y disfruta mucho de estos dias para que puedas regresar mas recargada que nunca, tambien como recordatorio, esta es semana de aniversario mi vida, te amo por siempre Ximena, no lo olvides 🤍
