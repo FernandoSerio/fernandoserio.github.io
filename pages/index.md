@@ -6,6 +6,9 @@
 ### Para Ximena, con mucho cariño, cada semana nuevas rolas, tqm, mi cielo.💓  
 
 [Si quieres ver años anteriores, aqui](#fin)
+## 12/08/25
+Segunda semana de agosto, cada dia mas cerca de estar cumpliendo dos años de estar compartiendo tantos momentos, hoy justamente me estaba acordando y repensando todos esos momentos que hemos cruzado a lo largo de estos casi dos años de relacion y no puede ser que a tantos lugares que hemos ido y compartido me llegan a mi mente y me hacen sentir tan nostalgico porque genuinamente se siguen sintiendo tan frescos y unicos, Te amo mucho Ximena, recordar hoy y pensarte, sabiendo que estas en mi presente en mi pasado y que el futuro a tu lado se siente tan seguro es algo unico, disfruta mucho de tus canciones de esta semana mi amorcito 💖💖
+
 ## 05/08/25
 Primera semana de agosto bebé, de nuestro mes de cuando todo empezo, yo se que esta es la primera semana pero desde hoy quisiera dejar unas palabras aqui y es que, realmente estoy muy contento por poder estar tan cerca de un festejo tan importante como lo es nuestro segundo año de aniversario de estar juntos, realmente la cuenta regresiva ha comenzado y no hago mas que pensar en que estamos tan cerca de estar dos años juntos, realmente el camino hasta dia de hoy ha sido algo increible, un sin fin de aprendizajes, de cosas buenas, malas, mas buenas obviamente, yo solo quiero agradecerte por estar en mi vida y de verdad no sabes cuanto te amo, haces mi mundo el lugar mas completo con tu compañia, te adoro, te amo por siempre Ximena, feliz primera semana de nuestro mes 💗❤💗❤
 
