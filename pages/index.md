@@ -6,6 +6,9 @@
 ### Para Ximena, con mucho cariño, cada semana nuevas rolas, tqm, mi cielo.💓  
 
 [Si quieres ver años anteriores, aqui](#fin)
+## 19/08/25
+Mi amorcito, ya estamos a una semana de volver a recordar todo lo que paso, de revivir un año mas de cuando todo empezo, de cuando esta aventura inicio, de dos años de cuando nuestra aventura juntos comenzo, realmente tengo tantos sentimientos encontrados, se que este fin de semana me he comportado comop un tonto y se que no he sido de lo mejor, pero he estado preparando tantisimas cosas para este segundo aniversario para festejar, estos dos años de tantas aventuras, de tanto amor, solo espero que despues de estos dos años podamos seguir festejando todo ese amor, todo ese aprendizaje de nuestra relacion de nuestro corazon creciendo para seguir amandonos mas y mas, te amo Ximena, con todo mi ser para siempre y hasta el ultimo dia de mis dias 💗💗💗💗 
+
 ## 12/08/25
 Segunda semana de agosto, cada dia mas cerca de estar cumpliendo dos años de estar compartiendo tantos momentos, hoy justamente me estaba acordando y repensando todos esos momentos que hemos cruzado a lo largo de estos casi dos años de relacion y no puede ser que a tantos lugares que hemos ido y compartido me llegan a mi mente y me hacen sentir tan nostalgico porque genuinamente se siguen sintiendo tan frescos y unicos, Te amo mucho Ximena, recordar hoy y pensarte, sabiendo que estas en mi presente en mi pasado y que el futuro a tu lado se siente tan seguro es algo unico, disfruta mucho de tus canciones de esta semana mi amorcito 💖💖
 
