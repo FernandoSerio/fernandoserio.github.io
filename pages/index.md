@@ -6,6 +6,11 @@
 ### Para Ximena, con mucho cariño, cada semana nuevas rolas, tqm, mi cielo.💓  
 
 [Si quieres ver años anteriores, aqui](#fin)
+## 26/08/25
+Despues de tantos dias y de agradecerle a la vida de darme otro año a tu lado, hoy mas que nunca siento muchisimo amor, que me rodea con tu inteligencia, tus anecdotas, tus pasatiempos, todo mi mundo. Estar otro año juntos me hace sentir tan especial de poder compartir el tiempo como lo hago contigo, el tiempo de calidad es algo inigualable. Esta semana tengo una seleccion de canciones muy especiales y que me han marcado tantisimo muchas de ellas, otras si son nuevos descubrimientos, pero como las otras solo demuestran lo que me ha pasado a lo largo de estos dos años, dos años que quiero que sean, tres, cuatro, cinco y mas, mas, mas. Te amo y te amare por siempre Ximena, eres mi mundo entero, gracias por tantisimo de tun gran amor de tu compresion, de todo. Haces latir mi corazon muy fuerte, mas  fuerte que nunca. 💘💘💘💘💘💘
+
+![Alt text](https://lh3.googleusercontent.com/pw/AP1GczP0XeR17Yb3VqM7wtOO5DIKR5AFZetRqeh74TXh-kn_9DIjNOB0aYqbBnOjEJjh8syZyNkQBpFuQ4etTJcf9qeuT-LZn6QWYmt7MnnWfBguaCHQC2CjWfhcP-cqz7QB8m40pDVM9iG9LxCE-k8S_r469g=w953-h953-s-no-gm "Dos añotes")
+
 ## 19/08/25
 Mi amorcito, ya estamos a una semana de volver a recordar todo lo que paso, de revivir un año mas de cuando todo empezo, de cuando esta aventura inicio, de dos años de cuando nuestra aventura juntos comenzo, realmente tengo tantos sentimientos encontrados, se que este fin de semana me he comportado comop un tonto y se que no he sido de lo mejor, pero he estado preparando tantisimas cosas para este segundo aniversario para festejar, estos dos años de tantas aventuras, de tanto amor, solo espero que despues de estos dos años podamos seguir festejando todo ese amor, todo ese aprendizaje de nuestra relacion de nuestro corazon creciendo para seguir amandonos mas y mas, te amo Ximena, con todo mi ser para siempre y hasta el ultimo dia de mis dias 💗💗💗💗 
 
