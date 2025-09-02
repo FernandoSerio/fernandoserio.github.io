@@ -6,6 +6,10 @@
 ### Para Ximena, con mucho cariño, cada semana nuevas rolas, tqm, mi cielo.💓  
 
 [Si quieres ver años anteriores, aqui](#fin)
+
+## 02/09/25
+Primera semana de septiembre bebé, ya vamos por tu primer mes de este semestre, aunque sientas que este fuera de control, yo se que tu estas haciendolo muy muy bien, que estas poniendo tus mejores esfuerzons y se que puede sentiurse como uun poco fuera de control pero que sepas que lo estas haciendo muy bien. Te amo mucho mi amor disfruta de esta semana de musica que semana tras semana sale por aqui, eres mi mundo entero, y quiero estar para apoyarte en lo que siempre me pidas y lo que no 💖💖💗
+
 ## 26/08/25
 Despues de tantos dias y de agradecerle a la vida de darme otro año a tu lado, hoy mas que nunca siento muchisimo amor, que me rodea con tu inteligencia, tus anecdotas, tus pasatiempos, todo mi mundo. Estar otro año juntos me hace sentir tan especial de poder compartir el tiempo como lo hago contigo, el tiempo de calidad es algo inigualable. Esta semana tengo una seleccion de canciones muy especiales y que me han marcado tantisimo muchas de ellas, otras si son nuevos descubrimientos, pero como las otras solo demuestran lo que me ha pasado a lo largo de estos dos años, dos años que quiero que sean, tres, cuatro, cinco y mas, mas, mas. Te amo y te amare por siempre Ximena, eres mi mundo entero, gracias por tantisimo de tun gran amor de tu compresion, de todo. Haces latir mi corazon muy fuerte, mas  fuerte que nunca. 💘💘💘💘💘💘
 
