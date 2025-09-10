@@ -7,6 +7,10 @@
 
 [Si quieres ver años anteriores, aqui](#fin)
 
+## 09/09/25
+Se que pareciera que no habia subido nada, pero toda esta situacion que nos paso me mantuvo un poco desorientado pero no dejando de pensar en ti bebé. Ayer ya no tuve como un momento para poder sentirme en paz pero ya con todo claro y sabiendo que todo esta bien, quiero que sepas que me importas mucho y que siemore quiero hacer las cosas para ti de la mejor manera, que no me gusta dejarme llevar por los malos pensamientos, que siempre quiero poder aprender algo nuevo de las discusiones, porque si a veces pueden ser dificiles pero no quita mi sentimiento de amor y de todas mis buenas intenciones de querer estar contigo. Te amo Ximena con todo mi ser, y para siempre 🤍
+
+
 ## 02/09/25
 Primera semana de septiembre bebé, ya vamos por tu primer mes de este semestre, aunque sientas que este fuera de control, yo se que tu estas haciendolo muy muy bien, que estas poniendo tus mejores esfuerzons y se que puede sentiurse como uun poco fuera de control pero que sepas que lo estas haciendo muy bien. Te amo mucho mi amor disfruta de esta semana de musica que semana tras semana sale por aqui, eres mi mundo entero, y quiero estar para apoyarte en lo que siempre me pidas y lo que no 💖💖💗
 
