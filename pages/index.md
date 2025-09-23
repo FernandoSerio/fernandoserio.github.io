@@ -7,6 +7,15 @@
 
 [Si quieres ver años anteriores, aqui](#fin)
 
+## 22/09/25
+Penuntima semana de septiembre mi amor, este ultimo fin de semana realmente se sintio como un viaje espectacular de amor, lleno de puras cosas buenas, de cosas increibles que de verdad, no podre olvidar como muchas otras de las cosas que hemos pasado juntos. Estar a tu lado y compartir cada momento es increible, desde correr todos apurados para regresar a la ciudad hasta sentarnos en el la calle a comernos un gaspacho sin decir nada y solo ver pasar la gente y el tiempo. Te amo muchisimo 💗🤍🤍
+
+![Alt text](https://lh3.googleusercontent.com/pw/AP1GczN0klX-f-K2OUuHa7xwMOIMQELDzMt7SLOJ9gg8ay0n9ev0jLwyUzJ9SXZVkUFRdRsBq4J_EVbTAH3o7jkaBcdumhGAM1MK1b6We4p_Hj91MGipmk_Myfh2aHuwayj7P4_Gn3rfFQK9GcMMVGIZyyRuuA=w1271-h953-s-no-gm?authuser=0 "Amor en Michoacan")
+
+## 16/09/25
+Semana patria y de air mi amor, espero que este dia de puente, puedas disfrutarlo aunque estas enfermita, yo se que esta semana fue un poco extraña por mis desplantes tan tontos y extrañas, yo se que sigo y tengo que seguir mejorando estas situaciones que hacen ponerte en una encrucijada, te amo y quiero que sepas que todo esto sigue siendo una lucha para poder ser el mejor para ti, te amo mucho bebé. 
+PD. Soy un tonto y nunca publique este cambio, hasta apenas el 22 me ando dando cuenta que no lo subi, que tonto soi. Pero igual que sepas que te amo con todo mi ser, perdoname 😿😿😿😿
+
 ## 09/09/25
 Se que pareciera que no habia subido nada, pero toda esta situacion que nos paso me mantuvo un poco desorientado pero no dejando de pensar en ti bebé. Ayer ya no tuve como un momento para poder sentirme en paz pero ya con todo claro y sabiendo que todo esta bien, quiero que sepas que me importas mucho y que siemore quiero hacer las cosas para ti de la mejor manera, que no me gusta dejarme llevar por los malos pensamientos, que siempre quiero poder aprender algo nuevo de las discusiones, porque si a veces pueden ser dificiles pero no quita mi sentimiento de amor y de todas mis buenas intenciones de querer estar contigo. Te amo Ximena con todo mi ser, y para siempre 🤍
 
