@@ -7,6 +7,10 @@
 
 [Si quieres ver años anteriores, aqui](#fin)
 
+## 30/09/25
+Ultimo dia del mes y de regreso a la ciudad, mi amir, espero que estos dias de viaje la hayas pasado super super bien, que todo haya ido de pelisimos en tu dia a dia, y aunque en algunas situaciones se haya puesto tenso por las corrientadas de las demas personas nunca dejes que ellos te hagan llegar a tu limite. Tu eres mas inteligente que todas esas personas y dia con dia me has podido demostrar que siempre estas dispuesta a mas, que siempre puedes superar los obstaculos, esta semana es una semana movida, pero esperemos que como siempre puedas librarla bien, con tu certificacion, con tu semana laboriosa, que esta semana es cortita para ti y aunque el mar el viaje te roben las ganas de seguir por la hueva, puedes decir que disfrutaste de una semana muy buena conociendo y revisitando Veracruz. Te amo mi amor, disfruta de tu semana y de la musica que escogi para ti 🤍🤍
+
+
 ## 22/09/25
 Penuntima semana de septiembre mi amor, este ultimo fin de semana realmente se sintio como un viaje espectacular de amor, lleno de puras cosas buenas, de cosas increibles que de verdad, no podre olvidar como muchas otras de las cosas que hemos pasado juntos. Estar a tu lado y compartir cada momento es increible, desde correr todos apurados para regresar a la ciudad hasta sentarnos en el la calle a comernos un gaspacho sin decir nada y solo ver pasar la gente y el tiempo. Te amo muchisimo 💗🤍🤍
 
