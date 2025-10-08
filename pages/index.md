@@ -7,6 +7,9 @@
 
 [Si quieres ver años anteriores, aqui](#fin)
 
+## 07/10/25
+Ahora si primera semana de octubre mi amor, ya estamos a dos meses de que acabe el año y de que acabes la especialidad al menos en las materias, vas muy bien mi amor, y se que puedes seguir haciendolo asi de bien, por otro lado espero que te guste la semana de canciones que te hice mi amor, como esperando que la puedas disfrutar en donde tu puedas y cuando te sientas comoda, apenas es martes pero ya veras que la semana se pasa volando. Quiero que sepas que te amo mucho mi amor y que este fin de semana como otros la pase bombisima, te agradezco muchismo por poder compartir momentos bien padrisimos y tus experiencias en como me las relatas. Te amo muchisimo mi amor, disfruta de tu semana 💘💘💘
+
 ## 30/09/25
 Ultimo dia del mes y de regreso a la ciudad, mi amir, espero que estos dias de viaje la hayas pasado super super bien, que todo haya ido de pelisimos en tu dia a dia, y aunque en algunas situaciones se haya puesto tenso por las corrientadas de las demas personas nunca dejes que ellos te hagan llegar a tu limite. Tu eres mas inteligente que todas esas personas y dia con dia me has podido demostrar que siempre estas dispuesta a mas, que siempre puedes superar los obstaculos, esta semana es una semana movida, pero esperemos que como siempre puedas librarla bien, con tu certificacion, con tu semana laboriosa, que esta semana es cortita para ti y aunque el mar el viaje te roben las ganas de seguir por la hueva, puedes decir que disfrutaste de una semana muy buena conociendo y revisitando Veracruz. Te amo mi amor, disfruta de tu semana y de la musica que escogi para ti 🤍🤍
 
