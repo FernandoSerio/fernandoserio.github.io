@@ -7,6 +7,9 @@
 
 [Si quieres ver años anteriores, aqui](#fin)
 
+## 14/10/25
+Martes de noche mi amorcito pero, desde ayer a primer minuto te subi las canciones, se me fue el dia volando y no hbia tenido chance de escribirte algo, pero como siempre quiero  que sepas que no se me pasa que pienso en ti todo el tiempo y en que estos detalles, sigan aqui semana tras semana, para que tengas un momento de desconexion de las cosas que haces, que a veces te traen tan apurado, igual espero que esta semana disfrutes mucho la musica aunque yo se que esta semana habra una cancion que no te guste mucho escucharla pero aun asi date la oportunidad de escucharla. Te amo mucho mi amor y que tu semana siga llendo de pelisimos 💗💗💗💗💗💗
+
 ## 07/10/25
 Ahora si primera semana de octubre mi amor, ya estamos a dos meses de que acabe el año y de que acabes la especialidad al menos en las materias, vas muy bien mi amor, y se que puedes seguir haciendolo asi de bien, por otro lado espero que te guste la semana de canciones que te hice mi amor, como esperando que la puedas disfrutar en donde tu puedas y cuando te sientas comoda, apenas es martes pero ya veras que la semana se pasa volando. Quiero que sepas que te amo mucho mi amor y que este fin de semana como otros la pase bombisima, te agradezco muchismo por poder compartir momentos bien padrisimos y tus experiencias en como me las relatas. Te amo muchisimo mi amor, disfruta de tu semana 💘💘💘
 
