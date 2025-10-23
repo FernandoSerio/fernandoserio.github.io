@@ -7,6 +7,9 @@
 
 [Si quieres ver años anteriores, aqui](#fin)
 
+## 21/10/25
+Mi vida hermosa, y como siempre mi vidita hermosa espero que martes haya ido increible, que fun martes de vivir muchisimas cosas y de andar coyeye coyeye, pero igual espero que lo estes pasando muy increible, que estes aprendiendo un sin fin de cosas y no olvides que amo, tu la mujer mas hermosa, inteligente y genial de este mundo. Te amo por siempre Ximena 🤍
+
 ## 14/10/25
 Martes de noche mi amorcito pero, desde ayer a primer minuto te subi las canciones, se me fue el dia volando y no hbia tenido chance de escribirte algo, pero como siempre quiero  que sepas que no se me pasa que pienso en ti todo el tiempo y en que estos detalles, sigan aqui semana tras semana, para que tengas un momento de desconexion de las cosas que haces, que a veces te traen tan apurado, igual espero que esta semana disfrutes mucho la musica aunque yo se que esta semana habra una cancion que no te guste mucho escucharla pero aun asi date la oportunidad de escucharla. Te amo mucho mi amor y que tu semana siga llendo de pelisimos 💗💗💗💗💗💗
 
