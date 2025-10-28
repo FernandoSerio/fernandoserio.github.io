@@ -7,6 +7,9 @@
 
 [Si quieres ver años anteriores, aqui](#fin)
 
+## 28/10/25
+Semana de aniversario y que termina con el concierto del nesqui, espero que te vaya muy bien bebe en esta semana, yo se que los dias se han puestos muy dementes, pero espero que con todo lo que platicamnos y escuchas de la musica que te pongo semana a semana se te hagan un poquitos mas amenas, sabes que estoy aqui para apoyarte y procurarte en todo lo que necesites. Como siempre espero que esta semana mi amor la disfrutes mucho, no olvides de ir guardando tus chats de chatgpt, tampoco olvides que te amo con todo mi ser, que pienso en ti todo el tiempo y que me haces muy feliz. Disfruta de la musica de la semana y de tus dias, te amo con todo mi ser preciosa hermosa 💗🤍💗🤍💗
+
 ## 21/10/25
 Mi vida hermosa, y como siempre mi vidita hermosa espero que martes haya ido increible, que fun martes de vivir muchisimas cosas y de andar coyeye coyeye, pero igual espero que lo estes pasando muy increible, que estes aprendiendo un sin fin de cosas y no olvides que amo, tu la mujer mas hermosa, inteligente y genial de este mundo. Te amo por siempre Ximena 🤍
 
