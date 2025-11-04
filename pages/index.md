@@ -6,6 +6,8 @@
 ### Para Ximena, con mucho cariño, cada semana nuevas rolas, tqm, mi cielo.💓  
 
 [Si quieres ver años anteriores, aqui](#fin)
+## 04/11/25
+Primera semana del mes, penultimo mes del año y despues de un fin de semana lleno de tantisimas emociones, verdaderamente, este fin de semana se me paso volando y eso me pone triste porque pues digo que hice para merecer eso, porque sabes, fue una cosa increible y queria que pasara lento para poder aun mas disfrutar el fin de semana mi amor. se que los siguientes fines de semana van a seguir siendo de pasar mucho tiempo y se que tambien ya vienen las vacaciones para ti, realmente es muy emocionante saber que vienen fechas tan importantes, como la navidad, el año nuevo, pensar que voy a estar cerrando otro año a tu lado me hace sentirme muy emocionado y feliz. Por lo mientras te dejo con la playlist de esta semana, espero que te guste mi amor, apenas es martes, pero veras que la semana pasara volando. Te amo con todo mi ser, mi gran amor, mi corazon, mi todo, te amooooo. 💖
 
 ## 28/10/25
 Semana de aniversario y que termina con el concierto del nesqui, espero que te vaya muy bien bebe en esta semana, yo se que los dias se han puestos muy dementes, pero espero que con todo lo que platicamnos y escuchas de la musica que te pongo semana a semana se te hagan un poquitos mas amenas, sabes que estoy aqui para apoyarte y procurarte en todo lo que necesites. Como siempre espero que esta semana mi amor la disfrutes mucho, no olvides de ir guardando tus chats de chatgpt, tampoco olvides que te amo con todo mi ser, que pienso en ti todo el tiempo y que me haces muy feliz. Disfruta de la musica de la semana y de tus dias, te amo con todo mi ser preciosa hermosa 💗🤍💗🤍💗
