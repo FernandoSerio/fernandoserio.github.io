@@ -7,8 +7,6 @@
 
 [Si quieres ver años anteriores, aqui](#fin)
 
-## 18/11/25
-
 ## 11/11/25
 Martes de pasar ese tonto examen que te ha estado atormentando mi corazon, y que por fin pudiste pasar, como siempre yo se que tu puedes lograr todo lo que te propones y se que el dia de hoy no fue la excepcion. Ahorita se que esta es tu primera semana en el hospi en la tarde, entonces estos dos dias han sido bien demenciales de mucha chamba y carga de trabajo, igual esperemos que esta semana para ti figure como una semana que se va faster. En fin, te dejo disfrutar de esta semana de musica mi corazon, espero que te guste mucho, que la disfrutes en tus ratos y no olvides que te amo con todo mi ser, mi gran amor 💗💗💗💗💗
 
