@@ -3,18 +3,35 @@ name: Deploy programado
 on:
   schedule:
     - cron: "0 6 * * 2"   # Martes 00:00 CDMX
-  workflow_dispatch:      # Manual opcional
+  workflow_dispatch:
 
 jobs:
-  deploy:
+  build:
     runs-on: ubuntu-latest
 
     steps:
       - uses: actions/checkout@v4
+
       - uses: actions/setup-node@v4
         with:
           node-version: 18
+
       - run: node utils/build.js
-      - uses: JamesIves/github-pages-deploy-action@v4
+
+      # Subir el contenido de /docs como artifact
+      - name: Upload artifact
+        uses: actions/upload-pages-artifact@v3
         with:
-          folder: docs
+          path: docs  # Carpeta generada
+
+  deploy:
+    needs: build
+    runs-on: ubuntu-latest
+    permissions:
+      pages: write
+      id-token: write
+
+    # Deploy oficial de GitHub Pages
+    steps:
+      - name: Deploy to GitHub Pages
+        uses: actions/deploy-pages@v4
