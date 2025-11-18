@@ -7,6 +7,9 @@
 
 [Si quieres ver años anteriores, aqui](#fin)
 
+## 18/11/25
+Martes como si fuera lunes pero con la misma constancia de musica para ti mi amor, que quiero que sepas que esta semana que paso fue algo muy increible, muy divertida, que de verdad fue una semana llena de emocioned, que hubiera tanta sinceridad de donde tenemos la relacion, de como nos procuramos y que saber que todo esta tan bien, solo me hace sentir mas seguro a tu lado, mas seguro que nunca, que puedo estar seguro de que todo lo que hemos construido a dia de hoy es algo con unos cimientos tan fuertes que de verdad creo que nada lo puede derrumbar. Te amo por siempre, como te lo digo cada martes, pero es que de verdad no tengo ninguna duda mi corazon. Disfruta mucho de esta semana, de la musica que te comparto y de mi amor que lo puedas llevar en el fondo de tu corazon 💞💞💞💞💞
+
 ## 11/11/25
 Martes de pasar ese tonto examen que te ha estado atormentando mi corazon, y que por fin pudiste pasar, como siempre yo se que tu puedes lograr todo lo que te propones y se que el dia de hoy no fue la excepcion. Ahorita se que esta es tu primera semana en el hospi en la tarde, entonces estos dos dias han sido bien demenciales de mucha chamba y carga de trabajo, igual esperemos que esta semana para ti figure como una semana que se va faster. En fin, te dejo disfrutar de esta semana de musica mi corazon, espero que te guste mucho, que la disfrutes en tus ratos y no olvides que te amo con todo mi ser, mi gran amor 💗💗💗💗💗
 
