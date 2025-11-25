@@ -7,6 +7,9 @@
 
 [Si quieres ver años anteriores, aqui](#fin)
 
+## 25/11/25
+Ultima semana de noviembre, de la especialidad y de aniversario, mi amor como todas las semanas desesando que esta semana sea igual o mas de excepcional que la anterior, que todo el esfuerzo que has tenido a lo largo de este semestre se ve reflejado en ti, en tus logros y grandes avances como persona adulta para este mundo tan duro pero que como siempre tu puedes salir adelante, como siempre mi vida, disfruta de las canciones de esta semana, que todo vaya increible en esta ultima semana del semestre y por supuesto no olvides que te amo con todas mis fuerzas💗💗💗
+
 ## 18/11/25
 Martes como si fuera lunes pero con la misma constancia de musica para ti mi amor, que quiero que sepas que esta semana que paso fue algo muy increible, muy divertida, que de verdad fue una semana llena de emocioned, que hubiera tanta sinceridad de donde tenemos la relacion, de como nos procuramos y que saber que todo esta tan bien, solo me hace sentir mas seguro a tu lado, mas seguro que nunca, que puedo estar seguro de que todo lo que hemos construido a dia de hoy es algo con unos cimientos tan fuertes que de verdad creo que nada lo puede derrumbar. Te amo por siempre, como te lo digo cada martes, pero es que de verdad no tengo ninguna duda mi corazon. Disfruta mucho de esta semana, de la musica que te comparto y de mi amor que lo puedas llevar en el fondo de tu corazon 💞💞💞💞💞
 
