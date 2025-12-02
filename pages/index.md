@@ -7,6 +7,9 @@
 
 [Si quieres ver años anteriores, aqui](#fin)
 
+## 02/12/25
+Semana de terminar el semestre, de llenarnos de orgullo, de que en verdad eres una mujer increible y que aunque no tengas aun calificacion, mi amor, ya todos sabemos que has hecho un semestre increible, que has vivido muchas cosas, que realmente todo esto te ha estado preparando para que el inicio de tu vida profesional, sea la mejor de todas, mientras tanto te dejo con la playlist de la semana que como siempre espero que disfrutes. No sabes que tanto me llenas de orgullo, te amoooooo muchisimo mi vida hermosa, la mas inteligente de toda 💗💗
+
 ## 25/11/25
 Ultima semana de noviembre, de la especialidad y de aniversario, mi amor como todas las semanas desesando que esta semana sea igual o mas de excepcional que la anterior, que todo el esfuerzo que has tenido a lo largo de este semestre se ve reflejado en ti, en tus logros y grandes avances como persona adulta para este mundo tan duro pero que como siempre tu puedes salir adelante, como siempre mi vida, disfruta de las canciones de esta semana, que todo vaya increible en esta ultima semana del semestre y por supuesto no olvides que te amo con todas mis fuerzas💗💗💗
 
