@@ -7,6 +7,9 @@
 
 [Si quieres ver años anteriores, aqui](#fin)
 
+## 09/12/25
+Como siempre estando por aqui cada martes mi amor compartiendote tantisimas cosas de amor, como lo que pienso que te podria gustar de musica y de todo, y que hoy que es un dia importante muy importante porque estas por entrar a un nuevo reto en tu vida, no me cabe la menor duda de que lo haras increible. Hoy es un dia en donde todos galardonamos tu esfuerzo, las desveladas, dias pesados de que sientes que se cae o se tambalea, pero lo mas importante para festejar es tu pasion con la que haces las cosas y el que estes en el foco de atencion solo demuestra que has sabido hacer las cosas increibles y que nunca has defraudado a nadie, todos los que estamos en el camino el dia de hoy, nos sentimos muy orgullosos de todo lo que has hecho hasta el de hoy. Te amo mucho Ximena, disfruta mucho el dia, tu musica y todo lo bueno que depara para mañana 🤍🤍🤍
+
 ## 02/12/25
 Semana de terminar el semestre, de llenarnos de orgullo, de que en verdad eres una mujer increible y que aunque no tengas aun calificacion, mi amor, ya todos sabemos que has hecho un semestre increible, que has vivido muchas cosas, que realmente todo esto te ha estado preparando para que el inicio de tu vida profesional, sea la mejor de todas, mientras tanto te dejo con la playlist de la semana que como siempre espero que disfrutes. No sabes que tanto me llenas de orgullo, te amoooooo muchisimo mi vida hermosa, la mas inteligente de toda 💗💗
 
