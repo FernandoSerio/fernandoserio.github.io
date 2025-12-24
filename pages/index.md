@@ -7,6 +7,12 @@
 
 [Si quieres ver años anteriores, aqui](#fin)
 
+## 23/12/25
+Hoy es 23 con sensacion de 24 y de 25 de verdad que no sabes que ilusion me hace poder pensar que esta es otra navidad que pasamos juntos, que nuevamente otro año se nos va estando juntos, realmente es muy emocionante saber que estas disfrutando de las vacaciones, de tu dia a dia, que estas logrando todo lo que te propones bebé, que genuinamente nada te detiene, y que seas asi de plena me hace sentir muy feliz, yo estoy muy contento y enamorado de la persona que eres, que sigues cambiando y aprendiendo de las cosas de tu vida, espero que como siempre disfrutes mucho de la musica que te comparto esta semana mi amor, te amo muchisimooooo 💗💗💗💗
+
+## 16/12/25
+Con todo mi amor y a pesar de que sea un dificil extraño quiero que sepas que estoy aqui y me hace querer contarte todos mis problemas y pensar que puedo contar contigo para estos dias dificiles me hace sentir paz entre tanto torbellino de emociones, gracias por siempre escucharme y ser abierta a poderme esperar en mis momentos tan criticos, te amo mucho bebe, espero que hayas disfrutado todas las canciones de esta semana. ❤
+
 ## 09/12/25
 Como siempre estando por aqui cada martes mi amor compartiendote tantisimas cosas de amor, como lo que pienso que te podria gustar de musica y de todo, y que hoy que es un dia importante muy importante porque estas por entrar a un nuevo reto en tu vida, no me cabe la menor duda de que lo haras increible. Hoy es un dia en donde todos galardonamos tu esfuerzo, las desveladas, dias pesados de que sientes que se cae o se tambalea, pero lo mas importante para festejar es tu pasion con la que haces las cosas y el que estes en el foco de atencion solo demuestra que has sabido hacer las cosas increibles y que nunca has defraudado a nadie, todos los que estamos en el camino el dia de hoy, nos sentimos muy orgullosos de todo lo que has hecho hasta el de hoy. Te amo mucho Ximena, disfruta mucho el dia, tu musica y todo lo bueno que depara para mañana 🤍🤍🤍
 
