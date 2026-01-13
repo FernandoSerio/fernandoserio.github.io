@@ -10,6 +10,9 @@
 ## 06/01/26
 Dia de reyes mi amor y de martes de compartirte canciones mi vida hermosa espero que esta semana te guste la seleccion musical, esta semana llegaron 20 canciones para hacerte feliz y porque la semana pasada me pase de naco y se me fue subirlas. Pero mi vida esta es la primera entrada de este año y que es un año con un porvenir mas interesante que nunca son momentos tan especiales para este año. Que para ambos sea un inicio de año sea increible, yo se que vienen cosas espectaculares. Te amo mucho amor de vida 🤍🤍🤍🤍
 
+## 13/01/26
+Ya es martes mi amor y espero que como siempre disfrutes mucho de esta semana de musica, que todo vaya muy bien para ti, que porfin esta semana te den tu carta de la espe, para que ya sepas cuando empieces y que todos sabemos que te ira increible, por ahora te comparto las canciones de esta semana y no olvides que te amo mucho bebe 💘
+
 <a id="fin"></a>
 # Años anteriores
 Por aca esta :
