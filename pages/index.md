@@ -7,6 +7,9 @@
 
 [Si quieres ver años anteriores, aqui](#fin)
 
+## 03/02/26
+Mi amorcito, empieza febrero y empieza recio para los dos, yo desde otro pais pero escribiendote esto, y tu empezando tu nueva etapa en la especialidad, hoy es martes y es un martes de tu primer dia, estoy seguro de que te ira increible, que si bien estas en el mismo hospital, empiezas un nuevo reto, con gente que te quiere y te apoya, yo desde aca te deseo los mejores deseos para el inicio de este nuevo ciclo en tu recta final de la especialidad. y como siempre bebe, espero que la musica de esta semana te acompañe y que sea una semana de volver con todo a la carga con tu especialidad. Te amo muchisimo mi amor, te un excelente inicio de residencia, de ciclo y semana 💗💗💗💗💗💗
+
 ## 27/01/26
 Y despues de nuestro aniversario y disfrutar otro mes a tu lado mi amor, no me queda mas que decirte que te amo tantisimo, que me haces sentir como un hombre muy amado, como alguien muy especial, que puedo despertar y saber que me piensas y que lo primero que hago yo es pensarte, realmente soy muy feliz. Y como cada martes, te escribo aqui para decirte que mi cariño ni mi amor se han acabado, sigue creciendo mas y mas, porque genuinamente, cada dia que paso a tu lado en verdad lo paso increible, es muy divertido compartir la vida a tu lado bebé. Te amo muchisimo, gracias por tanto y espero que disfrutes de la seleccion de esta semana 💟💟💟
 
