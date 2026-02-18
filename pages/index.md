@@ -7,6 +7,13 @@
 
 [Si quieres ver años anteriores, aqui](#fin)
 
+## 17/02/26
+Ya es martes nuevamente bebe, martes de coyeye desde temprano, de no tanto madrugar para ti jajaja y de ubers excesivamentes caros, pero mi amor espero que disfrutes mucho la musica de esta semana, que como cada semana puedas sentarte a disfrutarla en el camino, en tu casita, en donde sea pero que sea de tu agrado. Te amo mucho bebe y espero que todo este llendo de pelos en tu semana. 💘
+
+## 14/02/26
+Esta vez quise hacer algo diferente y se que en el martes que paso las cosas no estaban tan bien, pero eso no me quitaba de las intenciones de querer arreglar las cosas, realemnte, este 14 decidi publicar todo, se que aun no publico las canciones porque soy tonto y me agarraron las prisas de poder subir las canciones, pero mi amor feliz 14 de febrero, como siempre con mucho amor y con muchas ansias de poder verte para pasar este dia juntos, gracias por estar otro año a tu lado por poder compartir momentos de amor como estos. Yo estoy muy ansioso por que veas tu regalo y te encante mucho bebé te amo muchisimo y feliz 14. 🤍🤍🤍🤍
+
+
 ## 03/02/26
 Mi amorcito, empieza febrero y empieza recio para los dos, yo desde otro pais pero escribiendote esto, y tu empezando tu nueva etapa en la especialidad, hoy es martes y es un martes de tu primer dia, estoy seguro de que te ira increible, que si bien estas en el mismo hospital, empiezas un nuevo reto, con gente que te quiere y te apoya, yo desde aca te deseo los mejores deseos para el inicio de este nuevo ciclo en tu recta final de la especialidad. y como siempre bebe, espero que la musica de esta semana te acompañe y que sea una semana de volver con todo a la carga con tu especialidad. Te amo muchisimo mi amor, te un excelente inicio de residencia, de ciclo y semana 💗💗💗💗💗💗
 
