@@ -7,6 +7,9 @@
 
 [Si quieres ver años anteriores, aqui](#fin)
 
+## 24/02/26
+Ya es maartes mi amorcito y como cada semana estoy por aqui escribiendote y añadiendote canciones, para el disfrute de tu semana, esta semana se avecina un frio tremendo, yo espero que estes tapandote muy bien bebé, que la semana como otras se te esten pasando volando y que estes disfruntando de la espcialidad mi amor, sabes que te amo mucho mi amor, por siempre y para siempre 💗💗💗 disfruta mucho de tu semana 
+
 ## 17/02/26
 Ya es martes nuevamente bebe, martes de coyeye desde temprano, de no tanto madrugar para ti jajaja y de ubers excesivamentes caros, pero mi amor espero que disfrutes mucho la musica de esta semana, que como cada semana puedas sentarte a disfrutarla en el camino, en tu casita, en donde sea pero que sea de tu agrado. Te amo mucho bebe y espero que todo este llendo de pelos en tu semana. 💘
 
