@@ -53,7 +53,7 @@ function buildMarkdown(sourceFile, relativeFile) {
         );
     }
 
-    output = output.replace(/docs\/assets/g, 'assets');
+    output = output.replace(/docs\/assets/g, '/assets');
 
     output = output.replace(
         /href="\?(.*?)"/g,
