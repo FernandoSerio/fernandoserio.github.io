@@ -1,5 +1,9 @@
 // scrape pages folder for markdown files
 const markdown = fs.readdirSync(PAGES);
+const fs = require('fs');
+const marked = require('./lib/marked-node');
+const highlight = require('./lib/highlight-node');
+const checkBox = require('./lib/checkBox');
 
 markdown.forEach(file => {
 
