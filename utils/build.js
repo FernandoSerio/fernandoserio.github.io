@@ -23,7 +23,15 @@ markdown.forEach(file => {
     checkBox(`building ${file}...`);
 
     // Get markdown text
-    const markdownText = fs.readFileSync(PAGES + file, 'utf8');
+    const markdown = fs.readdirSync(PAGES);
+
+        markdown.forEach(file => {
+
+            const fullPath = PAGES + file;
+
+            if (!file.endsWith('.md')) {
+                return;
+            }   
 
     // Convert markdown to html
     const content = marked(markdownText);
