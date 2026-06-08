@@ -17,5 +17,6 @@ Bienvenida a nuestro archivo, aqui encontraras todo lo que paso en la relacion q
 * [Cumpleaños 2026](?cumple)
 
 <div style="text-align:center; opacity:0.7; margin-top:40px;">
-Hecho con muchisimo amor desde el fondo de mi corazon. [Fernando](https://www.instagram.com/barocio_fer/).
+Hecho con muchísimo amor desde el fondo de mi corazón.
+<a href="https://www.instagram.com/barocio_fer/" target="_blank">Fernando</a>.
 </div>
