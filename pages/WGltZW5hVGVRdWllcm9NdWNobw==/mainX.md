@@ -15,3 +15,7 @@ Bienvenida a nuestro archivo, aqui encontraras todo lo que paso en la relacion q
 
 # Especiales
 * [Cumpleaños 2026](?cumple)
+
+<div style="text-align:center; opacity:0.7; margin-top:40px;">
+Hecho con muchisimo amor desde el fondo de mi corazon. [Fernando](https://www.instagram.com/barocio_fer/).
+</div>
