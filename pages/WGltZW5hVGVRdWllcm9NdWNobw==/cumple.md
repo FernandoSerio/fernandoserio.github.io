@@ -1,5 +1,22 @@
 # Feliz Cumpleaños Ximena 🤍
 
+<div style="text-align:center; opacity:0.7; margin-top:40px;">
+Hecho con muchísimo amor desde el fondo de mi corazón.
+<a href="https://www.instagram.com/barocio_fer/" target="_blank">Fernando</a>.
+</div>
+
+<script src="https://cdn.jsdelivr.net/npm/canvas-confetti@1.9.3/dist/confetti.browser.min.js"></script>
+
+<script>
+window.addEventListener('load', () => {
+    confetti({
+        particleCount: 200,
+        spread: 180,
+        origin: { y: 0.6 }
+    });
+});
+</script>
+
 <iframe width="560" height="315" src="https://www.youtube.com/embed/p4DR2DXiMpY?si=jEWDHMo6xLMB8gOy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 
 ## Mensaje del video por si no me entiendo jajaja 
