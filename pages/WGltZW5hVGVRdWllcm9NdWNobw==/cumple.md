@@ -1,10 +1,5 @@
 # Feliz Cumpleaños Ximena 🤍
 
-<div style="text-align:center; opacity:0.7; margin-top:40px;">
-Hecho con muchísimo amor desde el fondo de mi corazón.
-<a href="https://www.instagram.com/barocio_fer/" target="_blank">Fernando</a>.
-</div>
-
 <script src="https://cdn.jsdelivr.net/npm/canvas-confetti@1.9.3/dist/confetti.browser.min.js"></script>
 
 <script>
