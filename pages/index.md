@@ -9,41 +9,34 @@ Desde Ciudad de Mexico hacia donde me estes leyendo
 <script>
 window.addEventListener('load', () => {
 
-  const defaults = {
-    spread: 360,
-    ticks: 50,
-    gravity: 0,
-    decay: 0.94,
-    startVelocity: 30,
-    colors: [
-      '#F8C8DC',
-      '#FFD6E8',
-      '#FFF0F5',
-      '#E6E6FA',
-      '#FFF8DC'
-    ]
-  };
+  var defaults = {
+  spread: 360,
+  ticks: 50,
+  gravity: 0,
+  decay: 0.94,
+  startVelocity: 30,
+  colors: ['FFE400', 'FFBD00', 'E89400', 'FFCA6C', 'FDFFB8']
+};
 
-  function shoot() {
-    confetti({
-      ...defaults,
-      particleCount: 40,
-      scalar: 1.2,
-      shapes: ['star']
-    });
+function shoot() {
+  confetti({
+    ...defaults,
+    particleCount: 40,
+    scalar: 1.2,
+    shapes: ['star']
+  });
 
-    confetti({
-      ...defaults,
-      particleCount: 10,
-      scalar: 0.75,
-      shapes: ['circle']
-    });
-  }
+  confetti({
+    ...defaults,
+    particleCount: 10,
+    scalar: 0.75,
+    shapes: ['circle']
+  });
+}
 
-  setTimeout(shoot, 0);
-  setTimeout(shoot, 250);
-  setTimeout(shoot, 500);
-  setTimeout(shoot, 750);
-
+setTimeout(shoot, 0);
+setTimeout(shoot, 100);
+setTimeout(shoot, 200);
 });
+  
 </script>
